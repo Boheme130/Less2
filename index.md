@@ -1,4 +1,4 @@
-## Less 一部平凡人的奥德赛喜剧
+## Less 一部反向的奥德赛喜剧
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
 ![avatar](https://pbs.twimg.com/media/DpN-YRRW0AEgwsY.jpg)
